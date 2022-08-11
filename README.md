@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JDitto95
+- 👋 Hi, I’m @JDitto95 also known as Joey.
 - 👀 I’m interested in Quality assurance positions, cycling, and anything really!
 - 🌱 I’m currently learning how to learn.
 - 💞️ I’m looking to collaborate on anything really, I am looking for opportunities to learn new things, so I am pretty open to anything.
